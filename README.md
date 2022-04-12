@@ -1,2 +1,0 @@
-# bakharia.github.io
-Portfolio
